@@ -1,4 +1,4 @@
-- 👋 Selmunalküm , I’m @AHMETBAYIR
+- 👋 Selmunaleyküm , I’m @AHMETBAYIR
 - 👀 I’m interested in math
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on ...
